@@ -1,1 +1,1 @@
-# KRITHI
+# AI-POWERED
